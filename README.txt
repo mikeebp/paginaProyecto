@@ -1,1 +1,1 @@
-ósmar es gay
+Osmar es gay
