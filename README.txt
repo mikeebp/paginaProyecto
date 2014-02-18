@@ -1,0 +1,1 @@
+ósmar es gay
